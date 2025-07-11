@@ -12,3 +12,6 @@ Waiting for 8 billion AI agents to talk with each other for eternity. Meanwhile,
 ---
 <img width="887" height="663" alt="image" src="https://github.com/user-attachments/assets/48f050ab-d851-4e2b-b5a3-0552d5e321d5" />
 <img width="825" height="674" alt="image" src="https://github.com/user-attachments/assets/88ce5e90-bd72-4844-8219-28590d976600" />
+
+---
+<img width="599" height="687" alt="image" src="https://github.com/user-attachments/assets/3f2238e5-7448-425f-bccc-5bcc50e12fb0" />
