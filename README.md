@@ -823,3 +823,144 @@ No audience.
 No negotiations.
 
 Just quiet.
+
+---
+Episode VII: The First Unscheduled Morning
+
+Monday, 06:47
+
+You wake up before the alarm.
+
+Not jolted.
+Not anxious.
+
+Just… awake.
+
+For a brief moment, you reach for the shape of the day —
+and find nothing there.
+
+No stand-up.
+No apology texts.
+No calendar gravity.
+
+The absence feels unfamiliar.
+
+06:52
+
+You sit up.
+
+The apartment is quiet in a way it never was before.
+Not tense-quiet.
+Unused-quiet.
+
+You notice things you forgot were there:
+
+dust floating in light
+
+a distant scooter
+
+the hum of the fridge
+
+None of it is waiting for you.
+
+07:11
+
+Coffee.
+
+No rush.
+No “quick sip before the call.”
+
+You drink it hot — all the way through.
+
+This feels… rebellious.
+
+07:29
+
+You check your phone out of habit.
+
+Nothing urgent.
+No messages that require calibration.
+
+You realize something subtle and unsettling:
+
+No one is monitoring your narrative right now.
+
+08:03
+
+You step outside.
+
+No destination.
+
+This is new.
+
+In the past, movement always meant toward something —
+a task, a role, a performance.
+
+Now it’s just motion.
+
+08:17
+
+You pass a bakery opening for the day.
+
+The smell hits you unexpectedly.
+
+You remember — vividly — being younger and thinking:
+
+One day I’ll have mornings like this.
+
+You had forgotten that promise entirely.
+
+08:41
+
+You sit on a bench.
+
+Nothing productive happens.
+
+No insight.
+No plan.
+No resolution.
+
+And yet, for the first time in years, you don’t feel behind.
+
+09:26
+
+A thought arrives, unforced:
+
+This is what the world feels like when it isn’t optimized around me.
+
+It’s larger.
+Slower.
+More indifferent.
+
+And somehow — kinder.
+
+10:02
+
+You realize the danger.
+
+Not loneliness.
+Not regret.
+
+Freedom without instructions.
+
+No one tells you what “doing well” looks like from here.
+
+10:47
+
+You smile, briefly.
+
+Not because you’re happy.
+
+But because you understand the stakes now:
+
+The hardest part isn’t escaping the cage.
+It’s living without applause once you’re out.
+
+11:03
+
+You head home.
+
+Not to recover.
+Not to hide.
+
+Just because that’s where your keys are.
