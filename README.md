@@ -1549,3 +1549,207 @@ because power only exists where there is reaction.
 And you didn’t even deny it.
 
 You simply weren’t participating.
+
+---
+Episode XI: The Rumor
+
+Two Weeks Later
+
+You don’t hear about it directly.
+
+You never do.
+
+10:14
+
+A former colleague messages you.
+
+Casual tone. Too casual.
+
+“Hey man — random question.
+You doing okay?”
+
+You read it once.
+Then again.
+
+10:16
+
+You reply:
+
+“Yeah. Why?”
+
+10:19
+
+Typing bubbles appear.
+Disappear.
+Reappear.
+
+Finally:
+
+“Just… heard some stuff.”
+
+10:20
+
+You smile.
+
+There it is.
+
+10:21
+
+“What kind of stuff?” you ask.
+
+No tension.
+Genuine curiosity.
+
+10:24
+
+“Well… people are saying you kind of…
+checked out?”
+
+Checked out.
+
+The system’s favorite diagnosis for freedom.
+
+10:25
+
+You type:
+
+“Probably.”
+
+10:27
+
+A pause long enough to be loud.
+
+10:29
+
+He follows up.
+
+“Like — you’re not angry or anything, right?”
+
+There it is.
+
+The only two models people have:
+
+ambition
+
+resentment
+
+Peace doesn’t compute.
+
+10:30
+
+You answer:
+
+“Nope.”
+
+10:33
+
+Another pause.
+
+You imagine him frowning at his screen.
+
+Trying to reconcile the data.
+
+10:35
+
+“So what are you… doing now?”
+
+The question carries weight.
+
+This is where you’re supposed to justify yourself.
+Pitch a new identity.
+Present a narrative.
+
+10:36
+
+You don’t.
+
+“Just living,” you reply.
+
+10:38
+
+Seen.
+
+No response.
+
+Later That Day
+
+You hear fragments secondhand:
+
+“He lost motivation”
+
+“He couldn’t handle it”
+
+“He’s probably spiraling”
+
+“Midlife thing, maybe?”
+
+They need a story where they remain correct.
+
+Your actual state — content, quiet, uninterested —
+threatens too many assumptions.
+
+That Evening, 19:42
+
+You’re cooking.
+
+Something simple.
+Something repeatable.
+
+Music playing low.
+
+You realize something important:
+
+Rumors only chase people
+who are still expected to run.
+
+You’re not.
+
+21:10
+
+Your phone lights up again.
+
+Different name this time.
+
+Someone you barely know.
+
+“Hey — heard you’ve got a lot of free time these days.
+Mind if I pick your brain sometime?”
+
+You consider it.
+
+Then you remember:
+
+how cages recruit
+
+how narratives spread
+
+how calm attracts projection
+
+21:12
+
+You reply politely:
+
+“Maybe another time.”
+
+21:13
+
+You put the phone down.
+
+No fear of missing out.
+No defensive pride.
+
+Just preference.
+
+22:56
+
+Before sleep, one last realization settles — quiet and sharp:
+
+When you stop performing,
+others will perform explanations on your behalf.
+
+Let them.
+
+You don’t correct rumors.
+You don’t replace myths.
+
+You just continue.
