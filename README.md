@@ -1753,3 +1753,152 @@ You don’t correct rumors.
 You don’t replace myths.
 
 You just continue.
+
+---
+Episode XII: The Unexpected Kindness
+
+Tuesday, 12:09
+
+It’s raining lightly.
+
+Not cinematic rain.
+The annoying kind that doesn’t justify an umbrella.
+
+You’re waiting at a crossing, hands in pockets, nowhere urgent to be.
+
+12:11
+
+An older man beside you drops his groceries.
+
+Not dramatically.
+Just a bag tearing at the bottom.
+
+Oranges roll everywhere.
+
+People step around them with practiced indifference.
+
+12:12
+
+You crouch without thinking.
+
+Pick up an orange.
+Then another.
+
+The man looks embarrassed more than grateful.
+
+“Sorry,” he says reflexively.
+
+12:13
+
+“No worries,” you reply.
+
+You mean it.
+
+You hand him the bag, re-tied awkwardly.
+
+12:14
+
+He nods.
+
+Then pauses.
+
+“You’re not in a hurry,” he observes.
+
+It’s not a question.
+
+12:15
+
+You smile.
+
+“Not really.”
+
+12:16
+
+He studies you for a second — not suspiciously, just curiously.
+
+“That’s rare,” he says.
+Then, after a beat:
+“Enjoy it.”
+
+The light changes.
+
+He walks off.
+
+12:18
+
+You cross the street.
+
+Something subtle lingers.
+
+Not warmth.
+Not meaning.
+
+Just… rightness.
+
+14:37
+
+Later, at a café you didn’t plan to enter, the barista gets your order wrong.
+
+You notice.
+
+You don’t correct it.
+
+It’s still good.
+
+14:58
+
+She notices anyway.
+
+“Oh — that’s not what you ordered. Sorry.”
+
+You shrug.
+
+“All good.”
+
+She looks relieved in a way that seems disproportionate.
+
+“Thanks,” she says.
+“Really.”
+
+15:01
+
+You sit by the window.
+
+Drink slowly.
+
+You realize what’s happening:
+
+When you’re not negotiating identity,
+kindness costs nothing.
+
+17:44
+
+On the way home, you help a neighbor carry a box upstairs.
+
+No backstory exchanged.
+No future implied.
+
+Just shared gravity for a minute.
+
+21:03
+
+At night, alone again, the thought arrives fully formed:
+
+This is what survives
+when ambition, resentment, and performance fall away.
+
+Not purpose.
+Not passion.
+
+Decency without effort.
+
+23:27
+
+You understand now why the earlier life felt so heavy.
+
+Everything required leverage.
+Everything had to mean something.
+
+This doesn’t.
+
+And that’s why it’s light.
