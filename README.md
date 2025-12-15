@@ -2135,3 +2135,123 @@ No conclusion necessary.
 
 The want is simply acknowledged.
 And that is enough.
+
+---
+Episode XV: The Choice
+
+Saturday, 08:47
+
+You wake up.
+The want from yesterday is still there.
+Persistent, patient, unhurried.
+
+09:12
+
+Coffee in hand, you sit by the window.
+You consider action.
+You consider inaction.
+
+Neither seems wrong.
+Neither seems urgent.
+
+But the choice exists.
+
+09:48
+
+You pick up your phone.
+No calls, no work, no obligation.
+Just blank screens.
+
+You scroll past a notification.
+A subtle impulse: check the opportunity.
+
+You don’t.
+
+10:21
+
+You write in your notebook.
+Not a plan.
+Not a project.
+
+Just words. Thoughts. Observations.
+
+“I can step forward.
+Or I can remain.
+Either way, nothing collapses.”
+
+11:06
+
+You step outside.
+The streets are quiet.
+A light drizzle.
+The smell of wet concrete.
+
+You feel a trace of excitement.
+Not the kind that demands applause.
+Not the kind that needs measurement.
+
+Just… possibility.
+
+12:33
+
+Lunch alone.
+You reflect:
+
+Every path has friction.
+Every option has cost.
+Yet the cage is gone.
+Nothing can force a misstep.
+
+14:19
+
+A message appears.
+From someone connected to the past.
+A new opportunity.
+Subtle, non-insistent.
+
+You consider replying.
+You consider ignoring.
+
+Either choice is valid.
+
+15:05
+
+You breathe slowly.
+You let the want exist.
+Not suppressed.
+Not pursued immediately.
+
+You realize: the choice itself is the power.
+
+17:42
+
+You walk past a small park.
+Children are playing.
+No performance.
+No expectation.
+
+You smile faintly.
+You could step in, or walk by.
+Both are fine.
+
+20:11
+
+At night, you sit by the window again.
+The city hums softly.
+
+You write one line in your notebook:
+
+The cage is gone.
+The want exists.
+The decision is mine.
+
+No answer needed yet.
+No conclusion.
+
+23:57
+
+Before sleep, a quiet understanding:
+
+True freedom is not in acting,
+but in knowing you may act — or not —
+without fear, expectation, or judgment.
