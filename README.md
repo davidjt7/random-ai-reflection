@@ -648,3 +648,178 @@ why were they there in the first place?
 You don’t answer it.
 
 You don’t need to.
+
+---
+Episode VI: The Transaction Ends
+
+Thursday, 19:08
+
+She says it like she’s delivering logistics, not news.
+
+“I think… I want a divorce.”
+
+No buildup.
+No trembling.
+
+Just a sentence that’s clearly been rehearsed alone.
+
+19:09
+
+You don’t respond immediately.
+
+Not because you’re stunned —
+because you’re listening for what isn’t being said.
+
+19:11
+
+She continues, filling the silence.
+
+“It’s not just emotional. I’ve been… seeing someone.”
+
+You nod once.
+Still calm.
+
+19:12
+
+She adds, quickly now — justification mode.
+
+“He’s more attentive.
+More… present.”
+
+Then, almost as an afterthought:
+
+“He spoils me. A lot.
+Gucci. Trips. Little surprises every week.”
+
+She’s watching your face.
+
+Waiting for collapse.
+Waiting for protest.
+Waiting for performance.
+
+19:13
+
+You feel something — but it isn’t jealousy.
+
+It’s clarity.
+
+19:14
+
+She says his name.
+
+“Lorenzo.”
+
+The name lands with the weight of a brand — not a person.
+
+19:15
+
+You finally speak.
+
+“Okay.”
+
+One word.
+Perfectly adequate.
+
+19:16
+
+She blinks.
+
+“That’s… it?”
+
+19:17
+
+You shrug, gently.
+
+“If the value proposition changed, it makes sense.”
+
+The sentence surprises both of you.
+
+19:19
+
+She frowns — not angry, but confused.
+
+“You’re not upset?”
+
+19:20
+
+You think about it honestly.
+
+You think about:
+
+the performances
+
+the schedules
+
+the social maintenance
+
+the polite narrowing of life
+
+Then you answer truthfully.
+
+“No.”
+
+19:22
+
+There it is.
+
+Not rage — deflation.
+
+She realizes something unsettling:
+
+She wasn’t leaving a cage.
+She was upgrading sponsors.
+
+And you…
+were never bidding.
+
+19:25
+
+She gathers herself.
+
+“We’ll need to talk about logistics.”
+
+You nod again.
+
+“Of course.”
+
+20:03
+
+Later, alone, you sit in silence.
+
+No music.
+No scrolling.
+
+You notice something unexpected:
+
+Your chest feels lighter.
+
+Not relieved.
+Not happy.
+
+Just… unburdened.
+
+23:41
+
+In bed, a final thought settles in — calm, precise, undeniable:
+
+The relationship didn’t fail.
+It completed its function.
+
+It was never about intimacy.
+It was about shared narrative maintenance.
+
+And now the narrative found a higher bidder.
+
+00:02
+
+You turn off the light.
+
+Tomorrow will involve paperwork.
+
+But tonight?
+
+No bars.
+No audience.
+No negotiations.
+
+Just quiet.
