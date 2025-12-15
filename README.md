@@ -2019,3 +2019,119 @@ Before sleep, one thought lingers:
 The world will misread you constantly.
 That’s fine.
 That’s the price of unclassifiable calm.
+
+---
+Episode XIV: The Want
+
+Friday, 07:58
+
+You wake up with a quiet thought lodged in your chest.
+
+Not a plan.
+Not a project.
+Not a narrative.
+
+Just a want.
+
+08:01
+
+It’s subtle.
+Almost embarrassing to admit:
+something alive is tugging at your attention.
+
+You try to ignore it.
+You are practiced in ignoring.
+
+08:05
+
+Coffee.
+You sip slowly, letting the morning stretch.
+
+The thought returns.
+Persistent now, like a quiet hum.
+
+09:12
+
+You walk outside.
+No destination.
+
+The city hums around you.
+Cars. Bicycles. People in motion.
+And yet the want keeps rising, soft but insistent.
+
+10:37
+
+You realize it’s not ambition.
+Not envy.
+Not curiosity.
+
+It is purely desire.
+For something undefined, but unmistakable.
+
+11:15
+
+You consider action.
+Then reconsider.
+Then simply notice.
+
+The key difference:
+before, action was always performative.
+Now it is optional.
+
+13:22
+
+You pass a small art gallery.
+Something in the window catches your eye.
+
+You linger.
+No one calls you back to obligation.
+No narrative demands your evaluation.
+
+You enter.
+
+13:45
+
+You let yourself feel intrigue.
+For the first time in years, you let curiosity meet want without editing.
+
+No checklist.
+No audience.
+No ledger.
+
+14:18
+
+You walk out, carrying nothing tangible.
+Except the awareness: something inside you is no longer quieted.
+
+16:03
+
+Back home.
+You sit at your desk.
+Laptop closed.
+No tasks.
+
+You write down a thought:
+
+This is not urgency.
+This is life signaling itself.
+
+19:22
+
+Dinner. Alone.
+Not lonely.
+Not performative.
+Just receptive.
+
+22:11
+
+Before sleep, one truth surfaces:
+
+All the cages, all the expectations, all the narratives —
+none can stop this quiet insistence.
+
+You lie down.
+No resolution needed.
+No conclusion necessary.
+
+The want is simply acknowledged.
+And that is enough.
