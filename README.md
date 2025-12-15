@@ -964,3 +964,187 @@ Not to recover.
 Not to hide.
 
 Just because that’s where your keys are.
+
+---
+Episode VIII: The Call
+
+Wednesday, 16:18
+
+You’re folding laundry.
+
+Not because it’s urgent.
+Because it’s there.
+
+Your phone rings.
+
+Unknown number.
+
+You almost don’t pick up —
+not out of fear, but indifference.
+
+You answer anyway.
+
+16:19
+
+“Hey… it’s Raj.”
+
+A pause, then:
+
+“From work. We used to sync a lot.”
+
+You remember him instantly.
+The voice carries urgency like a familiar accent.
+
+16:20
+
+“How’ve you been?” he asks.
+
+You hear the real question underneath:
+
+Are you still inside the machine?
+
+16:21
+
+“I’m good,” you say.
+
+Not defensive.
+Not triumphant.
+
+Just accurate.
+
+16:23
+
+He exhales — relief or envy, you can’t tell.
+
+“Listen… there’s a role opening up.
+Pretty senior. Visibility. Impact. Big bump.”
+
+There it is.
+
+The upgrade offer.
+
+16:24
+
+He keeps going, momentum building.
+
+“You’d be perfect.
+They’re finally listening.
+We can actually fix things now.”
+
+You smile softly.
+
+You’ve heard this pitch before —
+in different voices, different years.
+
+16:26
+
+You ask the only question that matters:
+
+“What changes day to day?”
+
+There’s a pause.
+
+Just half a beat too long.
+
+16:27
+
+“Well… more responsibility.
+More coordination.
+More alignment.”
+
+Alignment again.
+
+The word never dies.
+
+16:28
+
+You glance at the window.
+
+Light shifting.
+Evening arriving without permission.
+
+16:29
+
+“Sounds solid,” you say.
+
+Another pause.
+
+“You’re not interested, are you?”
+
+Not accusatory.
+Just confused.
+
+16:30
+
+You consider lying —
+softening it, keeping doors open.
+
+Instead, you tell the quiet truth.
+
+“I don’t want to be important anymore.”
+
+The line hangs between you.
+
+16:31
+
+He laughs nervously.
+
+“Man… must be nice.”
+
+You don’t correct him.
+
+16:33
+
+He tries once more.
+
+“You sure? This is a good path.”
+
+16:34
+
+You answer gently.
+
+“I’m on a different one.”
+
+16:36
+
+The call ends politely.
+
+No bridges burned.
+No declarations made.
+
+Just a door that closes because no one is holding it open.
+
+16:41
+
+You go back to folding laundry.
+
+Your hands move slower than before.
+
+You realize something crucial:
+
+Nothing you said will make sense to him.
+And that’s okay.
+
+Paths only look obvious from the inside.
+
+19:12
+
+Later, eating dinner alone, you feel it:
+
+Not pride.
+Not loss.
+
+Integrity without witnesses.
+
+22:58
+
+Before sleep, a final thought settles — steady and irreversible:
+
+The cage will always send recruiters.
+Freedom has to be renewed daily.
+
+You turn off the light.
+
+Tomorrow will be ordinary.
+
+And that feels right.
