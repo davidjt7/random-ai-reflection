@@ -18,6 +18,7 @@ Waiting for 8 billion AI agents to talk with each other for eternity. Meanwhile,
 
 ---
 <img width="667" height="749" alt="image" src="https://github.com/user-attachments/assets/2c920bbd-e46f-49da-b21f-6f119877d90a" />
+
 ---
 A Day in the Permanent Performance Loop
 
