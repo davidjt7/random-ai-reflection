@@ -132,6 +132,112 @@ Also my mom asked when we’re finalizing dates.”
 
 You stare at the ceiling.
 
+---
+Episode II: The Weekend That Wasn’t
+
+Friday, 19:42
+You’re home early for once.
+
+No crisis.
+No emergency.
+Just a rare pocket of time.
+
+You think: Maybe I’ll finally relax.
+
+The thought barely forms before it’s interrupted.
+
+“Hey babe — tomorrow’s packed, okay?
+Brunch at 11. Gym class at 1.
+Then we have to swing by that furniture place — the one with the aesthetic wood.”
+
+You nod automatically. Muscle memory.
+
+Saturday, 10:58
+Brunch.
+
+You’re not hungry.
+You’re not unhappy either.
+Just… neutralized.
+
+Everyone’s discussing trips they didn’t enjoy and restaurants they didn’t need.
+
+Someone says,
+“We’re so busy lately, it’s crazy.”
+
+Everyone agrees enthusiastically.
+No one asks why.
+
+13:07
+Gym class.
+
+Music too loud.
+Movements too choreographed.
+Mirrors everywhere.
+
+You lift. You sweat.
+You feel nothing resembling vitality.
+
+A trainer yells encouragement like a threat.
+
+16:30
+Furniture store.
+
+You stand next to a couch that costs more than your first year of rent ever did.
+
+“Do you feel the vibe?” she asks.
+
+You try to.
+You really do.
+
+But the couch feels like a prop in a play you didn’t audition for.
+
+18:45
+Car ride home.
+
+Silence stretches.
+Not the good kind.
+
+You glance out the window and feel a strange flicker —
+a memory of being younger, doing nothing, and somehow feeling more alive.
+
+The thought passes.
+Traffic resumes.
+
+21:00
+Dinner at home.
+
+Delivered.
+Eaten.
+Forgotten.
+
+TV on.
+Phones out.
+
+You’re sitting next to someone you know intimately — and yet, no one is there.
+
+23:30
+In bed.
+
+Lights off.
+Mind on.
+
+You realize something unsettling:
+
+Nothing today was bad.
+Nothing tomorrow will be either.
+
+And that’s the problem.
+
+00:02
+You stare at the ceiling and think:
+
+If this is what “having it together” feels like…
+when exactly does life start again?
+
+No answer arrives.
+
+Just another optimized weekend successfully completed.
+
 Another day successfully survived.
 Nothing exploded.
 Nothing lived.
