@@ -516,3 +516,135 @@ When did I agree to stop doing things that don’t scale?
 No answer comes.
 
 But the question stays.
+
+---
+Episode V: The Quiet Divergence
+
+Wednesday, 08:52
+
+Nothing changes.
+
+That’s the first thing.
+
+Same alarm.
+Same shower.
+Same clothes.
+
+From the outside, the system registers normal.
+
+09:31
+
+Stand-up meeting.
+
+You speak slightly less than usual.
+
+No one notices.
+
+You realize something subtle and unsettling:
+Most of your participation was never required — it was ornamental.
+
+11:07
+
+A task comes in.
+
+You do it.
+But you don’t polish it.
+
+Not sloppy.
+Just… sufficient.
+
+It ships.
+
+The world remains intact.
+
+13:18
+
+Lunch alone.
+
+Not as a statement.
+Just because you feel like it.
+
+You eat slower.
+You taste more.
+
+You don’t check your phone for a full seven minutes.
+
+That would have been unthinkable last week.
+
+15:44
+
+You cancel something nonessential.
+
+No excuse.
+No elaborate justification.
+
+Just:
+
+“Won’t make it today.”
+
+Three dots appear.
+Then disappear.
+
+No follow-up.
+
+18:02
+
+On the way home, you take a different street.
+
+It’s not better.
+It’s not worse.
+
+It’s just yours.
+
+That seems to matter more than expected.
+
+20:11
+
+At dinner, you don’t perform curiosity.
+
+You listen when interested.
+You go quiet when you’re not.
+
+There’s a flicker of discomfort across the table.
+
+You don’t rush to soothe it.
+
+The discomfort passes on its own.
+
+This surprises you.
+
+22:47
+
+Alone again.
+
+You don’t fill the silence.
+
+You let it be awkward.
+
+Then… it isn’t.
+
+23:30
+
+You realize the divergence isn’t an action.
+
+It’s a subtraction.
+
+Fewer explanations
+
+Fewer anticipatory apologies
+
+Fewer preemptive compromises
+
+Nothing dramatic was removed.
+Just friction.
+
+00:06
+
+A thought arrives, calm and precise:
+
+If no one notices me loosening the bars…
+why were they there in the first place?
+
+You don’t answer it.
+
+You don’t need to.
