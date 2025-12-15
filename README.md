@@ -375,3 +375,144 @@ You turn on your side.
 Tomorrow is Monday.
 
 Everything will continue working perfectly.
+
+---
+Episode IV: The Glitch
+
+Tuesday, 14:36
+
+You weren’t supposed to be outside.
+
+Calendar says:
+
+“Focus block”
+
+“Heads down”
+
+“No meetings”
+
+Which really means be available, but unseen.
+
+Instead, you’re walking. No destination. Just air.
+
+14:41
+
+A street musician is playing badly.
+
+Not TikTok-bad.
+Not ironic-bad.
+Just… human-bad.
+
+Missed notes. Wrong tempo. No amplification.
+
+And yet — something pulls you to stop.
+
+14:43
+
+You stand there longer than necessary.
+
+No one’s filming.
+No one’s clapping.
+
+The man plays anyway.
+
+For the first time in weeks, something inside you isn’t being measured.
+
+14:46
+
+A thought appears, uninvited:
+
+Oh. This is what aliveness feels like.
+
+It’s small.
+Almost embarrassing.
+
+But it’s unmistakable.
+
+14:48
+
+Your phone buzzes.
+
+Slack notification.
+
+“Quick check — are you online?”
+
+The spell wavers.
+
+14:49
+
+You don’t reply immediately.
+
+This is new.
+
+14:51
+
+The musician finishes a song no one asked for.
+He nods to himself.
+Starts another.
+
+No optimization.
+No audience strategy.
+
+Just continuation.
+
+14:53
+
+You feel something dangerous now.
+
+Not anger.
+Not sadness.
+
+Possibility.
+
+14:55
+
+You realize what’s unsettling about this moment:
+
+Nothing is demanding you return.
+
+The cage didn’t tighten.
+The world didn’t collapse.
+
+It’s just… quiet.
+
+15:02
+
+You finally reply:
+
+“Yep — here.”
+
+Lie delivered.
+System soothed.
+
+15:04
+
+You walk away.
+
+But the glitch follows you.
+
+Like a hairline crack in glass — invisible, but irreversible.
+
+That Night, 01:17
+
+You can’t sleep.
+
+Not from stress.
+
+From remembering.
+
+A younger version of you surfaces:
+
+doing pointless things
+
+wandering
+
+making choices with no justification
+
+You whisper the question you haven’t allowed yourself to ask in years:
+
+When did I agree to stop doing things that don’t scale?
+
+No answer comes.
+
+But the question stays.
