@@ -2255,3 +2255,147 @@ Before sleep, a quiet understanding:
 True freedom is not in acting,
 but in knowing you may act — or not —
 without fear, expectation, or judgment.
+
+---
+Episode XVI: The Encounter
+
+Monday, 18:12
+
+You’re walking through a quiet street.
+Not rushing.
+Not observing.
+Just moving.
+
+18:15
+
+A familiar voice calls your name.
+
+You pause.
+No heartbeat spike.
+No surprise.
+
+It’s Riya — a friend from years ago.
+Sharp, curious, always asking questions you didn’t want to answer.
+
+18:16
+
+She approaches.
+Smiling.
+Eyes scanning for reaction.
+Old habits die slowly.
+
+“David! Wow. It’s been forever. How are you?”
+
+18:17
+
+You nod once.
+“Good. You?”
+
+Simple.
+Calm.
+Uninterested in performance.
+
+18:18
+
+She frowns slightly.
+Her eyebrows lift.
+She expected more.
+
+“Good?” she repeats.
+“Just… good?”
+
+18:20
+
+You glance around.
+People walking.
+Cars passing.
+Rain starting to drizzle.
+
+“Yes. Just good.”
+
+The sentence lands softly, without pleading or polish.
+
+18:21
+
+Her gaze sharpens.
+“Nothing else? No work? No plans? No… projects?”
+
+You consider replying with your usual charm.
+Then decide: no hooks today.
+
+“I’m just… living,” you say.
+
+18:23
+
+Her smile tightens.
+She laughs nervously.
+“Living? That’s… unusual.”
+
+She was trained to interpret life through output and struggle.
+You’re giving her nothing to interpret.
+
+18:24
+
+She tries again:
+“You must be bored sometimes? Or… lonely?”
+
+You shrug lightly.
+“Sometimes. Mostly not.”
+
+18:25
+
+Her frown deepens.
+She’s grasping for the old you — the one who argued, worried, competed.
+
+It isn’t there.
+
+18:26
+
+She steps closer, lowers her voice:
+“Don’t tell me you’ve… checked out completely.”
+
+You shake your head gently.
+“No. I’ve just… stopped playing the game.”
+
+18:28
+
+Her irritation surfaces.
+Not anger.
+Not fear.
+Irritation.
+
+No one likes power without vulnerability.
+
+18:30
+
+You smile faintly.
+“No offense meant. Just… different now.”
+
+Her eyes dart away.
+She exhales sharply.
+“You’ve changed,” she mutters.
+
+18:32
+
+You nod.
+“Yes. I guess I have.”
+
+No apology. No justification.
+
+18:34
+
+She turns.
+Walks away.
+You continue your path.
+
+No chase.
+No validation.
+No need.
+
+18:40
+
+Later, you realize:
+
+Encounters test calm, not strength.
+People search for hooks where none exist.
+That’s the quietest victory.
