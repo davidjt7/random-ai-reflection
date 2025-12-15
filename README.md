@@ -1902,3 +1902,120 @@ Everything had to mean something.
 This doesn’t.
 
 And that’s why it’s light.
+
+---
+Episode XIII: The Mistake
+
+Thursday, 10:14
+
+A colleague from your old company calls.
+
+Not urgently.
+Not casually.
+
+Curiosity disguised as opportunity.
+
+10:16
+
+“Hey… heard you’ve been… taking it easy,” he says carefully.
+“Relaxed, right?”
+
+You tilt your head.
+
+“Yes. Pretty much.”
+
+10:18
+
+He laughs nervously.
+
+“You’re not… stuck? Depressed? Feeling lost?”
+
+10:19
+
+You realize instantly:
+He expects chaos.
+Drama.
+Self-recrimination.
+
+You don’t have any.
+
+10:20
+
+“Nope,” you say plainly.
+
+10:21
+
+He pauses.
+
+Then tries another angle:
+
+“Well… uh… maybe you should come back.
+We could really use someone like you.”
+
+10:22
+
+You consider lying — pretending longing, need, or ambition.
+
+Then think: why?
+
+The mistake is not his.
+It’s the system that still measures you by absence of struggle.
+
+10:23
+
+“I’m fine here,” you reply calmly.
+
+Nothing else.
+No justification.
+No softening.
+
+10:25
+
+Another pause.
+
+You hear it in his voice: disbelief, irritation, confusion.
+
+10:27
+
+“You really don’t want it? Not the role? Not the bump?”
+
+He’s trying to find hooks.
+There are none.
+
+10:28
+
+“I don’t want it,” you confirm.
+No inflection. No drama.
+
+10:30
+
+The line goes quiet.
+You can feel him recalibrating internally.
+He can’t compute a life that isn’t reactive.
+
+10:32
+
+Call ends.
+
+Nothing burns. Nothing bends.
+
+10:34
+
+You sit back.
+Smile slightly.
+Then return to folding laundry.
+
+20:16
+
+Later, you notice the small clarity:
+
+Mistakes only exist for the system.
+Not for the person who opts out.
+
+22:47
+
+Before sleep, one thought lingers:
+
+The world will misread you constantly.
+That’s fine.
+That’s the price of unclassifiable calm.
