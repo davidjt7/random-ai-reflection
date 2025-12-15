@@ -2399,3 +2399,116 @@ Later, you realize:
 Encounters test calm, not strength.
 People search for hooks where none exist.
 That’s the quietest victory.
+
+---
+Episode XVII: The Slip
+
+Wednesday, 09:13
+
+You wake to a buzzing phone.
+Not the usual notifications.
+An unfamiliar number flashes.
+
+09:15
+
+“David? It’s urgent.
+There’s been a mistake with your bank account.
+Large transactions flagged.
+They may freeze everything.”
+
+09:16
+
+You sit up.
+A slight twinge — tension you haven’t felt in months.
+
+The first true intrusion since opting out.
+The first real stakes you didn’t choose.
+
+09:18
+
+You open the banking app.
+Everything looks normal.
+But the notification persists:
+
+multiple alerts
+
+unusual flags
+
+a small panic embedded in words
+
+09:20
+
+Your mind flashes briefly to old reflexes:
+
+Panic
+
+Rapid planning
+
+Performance under stress
+
+Instead… you pause.
+
+09:22
+
+You check the source.
+It’s real.
+A genuine mistake: someone flagged your accounts incorrectly.
+Money safe, but action required within hours.
+
+09:25
+
+For the first time in months, a deadline matters.
+You feel the familiar tug of the old world:
+
+calculation
+
+compliance
+
+navigation of systems
+
+09:40
+
+You decide the optimal path:
+
+call the bank
+
+verify identity
+
+correct the flags
+
+Not performance.
+Not for show.
+Just survival.
+
+10:03
+
+Call done.
+Mistake resolved.
+No one watching.
+No one impressed.
+
+10:10
+
+You sit back.
+Realize something:
+
+Excitement is just friction moving quickly.
+The world still intrudes.
+The question is whether you respond as a character in the system or as yourself.
+
+10:14
+
+You smile faintly.
+A little adrenaline, a little satisfaction,
+but no ego, no drama.
+
+The stakes existed.
+You met them.
+You walked away unscathed.
+
+10:45
+
+Later, alone with coffee, a subtle thought forms:
+
+True freedom doesn’t erase risk.
+It only changes the way you meet it.
