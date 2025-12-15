@@ -1148,3 +1148,404 @@ You turn off the light.
 Tomorrow will be ordinary.
 
 And that feels right.
+
+---
+Episode IX: The Boring Day
+
+Thursday, 09:04
+
+You wake up late.
+
+Not accidentally.
+Not rebelliously.
+
+Just… when your body decides it’s done.
+
+No symbolism.
+No revelation.
+
+09:37
+
+Breakfast is simple.
+
+Nothing is photographed.
+Nothing is optimized.
+
+You eat because you’re hungry.
+You stop because you’re full.
+
+This feels strangely radical.
+
+10:22
+
+You open your laptop.
+
+Not to grind.
+Not to build a future.
+
+Just to finish something small you said you would.
+
+It takes 41 minutes.
+
+You close the laptop again.
+
+No one applauds.
+
+11:41
+
+You clean a corner of the room you’ve ignored for years.
+
+You find:
+
+an old cable you don’t recognize
+
+a notebook with half-finished thoughts
+
+a receipt from a life that no longer exists
+
+You throw most of it away.
+
+No ceremony.
+
+13:06
+
+Lunch.
+
+Alone again.
+
+You realize you’re not lonely —
+you’re unoccupied.
+
+There’s a difference.
+
+14:58
+
+You lie on the floor.
+
+Not exhausted.
+Not depressed.
+
+Just horizontal.
+
+Thoughts come and go without sticking.
+
+For the first time, boredom doesn’t feel like an enemy.
+
+It feels like space.
+
+16:12
+
+You consider doing something “meaningful.”
+
+Then you notice the impulse itself.
+
+You let it pass.
+
+17:39
+
+A neighbor waves.
+
+You wave back.
+
+No story forms around it.
+
+19:04
+
+Dinner.
+
+Simple again.
+
+You eat slower than necessary.
+
+You realize the day has not produced:
+
+progress
+
+proof
+
+narrative
+
+And yet — it doesn’t feel wasted.
+
+21:46
+
+You sit by the window.
+
+City lights flicker on.
+
+Somewhere out there:
+
+deals are closing
+
+arguments are happening
+
+milestones are being announced
+
+None of it requires your participation.
+
+23:18
+
+You prepare for bed.
+
+No dread about tomorrow.
+
+No excitement either.
+
+Just continuity.
+
+23:41
+
+One final thought surfaces — calm, unremarkable, and permanent:
+
+Maybe this is what life looks like
+when it isn’t trying to justify itself.
+
+You turn off the light.
+
+---
+Episode X: The Power That Wasn’t There
+
+Saturday, 18:22
+
+You’re at a small grocery store.
+
+Not a fancy one.
+Not a symbolic one.
+
+Just picking up:
+
+bread
+
+fruit
+
+something you’ll probably forget to cook
+
+18:25
+
+You hear your name.
+
+Not shouted.
+Not warmly.
+
+Tested.
+
+You turn.
+
+18:26
+
+It’s her.
+
+Immaculate.
+Calibrated.
+Effortful.
+
+Beside her stands Lorenzo.
+
+Taller than you imagined.
+Better dressed than necessary.
+Trying very hard to look unbothered.
+
+18:27
+
+She smiles.
+
+Not kindness.
+Not cruelty.
+
+Assessment.
+
+18:28
+
+“Well,” she says, drawing the word out,
+“look at you.”
+
+You nod.
+
+“Hey.”
+
+Just that.
+
+18:29
+
+She waits.
+
+This is the moment where:
+
+you’re supposed to shrink
+
+or stiffen
+
+or signal loss
+
+You don’t.
+
+You’re mentally deciding between apples and oranges.
+
+18:30
+
+She tries again.
+
+“So… how are things?”
+
+Her eyes flick briefly to your basket.
+
+Plain.
+Unimpressive.
+
+18:31
+
+You answer honestly.
+
+“Good.”
+
+Not defensive.
+Not performative.
+
+Just… informational.
+
+18:32
+
+A micro-pause.
+
+She wasn’t expecting that tone.
+
+18:33
+
+Lorenzo steps in, smiling.
+
+“We’ve been traveling a lot,” he says.
+“Just got back from Milan.”
+
+You nod again.
+
+“Oh nice.”
+
+You mean it.
+Then you turn slightly toward the bread.
+
+18:34
+
+She tightens.
+
+“No questions?” she asks, lightly.
+“Don’t you want to know where we stayed?”
+
+18:35
+
+You look at her — properly, for the first time.
+
+“Oh. No, I’m good.”
+
+You smile, briefly.
+
+“I hope you enjoyed it though.”
+
+18:36
+
+There it is.
+
+The misfire.
+
+18:37
+
+She laughs, a little too loudly.
+
+“Well… some of us moved on.”
+
+The sentence hangs, sharpened.
+
+18:38
+
+You blink.
+
+Then:
+
+“Yeah. That’s usually how it goes.”
+
+No edge.
+No sting.
+
+18:39
+
+Silence.
+
+Lorenzo shifts his weight.
+
+She feels it now — the wrongness.
+
+18:40
+
+She tries once more, irritation bleeding through.
+
+“So… what are you doing now?”
+
+This time the question isn’t curiosity.
+
+It’s a probe.
+
+18:41
+
+You think for a second.
+
+“Honestly?
+Just living pretty simply.”
+
+You lift the basket slightly.
+
+“Cooking more.”
+
+18:42
+
+She stares.
+
+Waiting for:
+
+regret
+
+longing
+
+resentment
+
+Anything she can stand on.
+
+18:43
+
+Nothing comes.
+
+18:44
+
+You glance at your watch.
+
+“Well. Good seeing you.”
+
+You mean that too.
+
+You step around them.
+
+18:45
+
+As you walk away, you hear it — not words, but friction.
+
+The sound of someone realizing:
+
+There is no lever here.
+No wound to press.
+No debt to collect.
+
+18:47
+
+At the checkout, you pay.
+
+No adrenaline.
+No victory.
+
+Just completion.
+
+Later
+
+Somewhere behind you, irritation blooms —
+because power only exists where there is reaction.
+
+And you didn’t even deny it.
+
+You simply weren’t participating.
