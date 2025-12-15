@@ -241,3 +241,137 @@ Just another optimized weekend successfully completed.
 Another day successfully survived.
 Nothing exploded.
 Nothing lived.
+
+---
+Episode III: The Conversation That Was Already Decided
+
+Sunday, 17:11
+
+You’re sitting on opposite ends of the couch.
+Not arguing.
+Not smiling either.
+
+There’s a pause that lasts just a little too long.
+
+She says it carefully, like someone handling glass:
+
+“So… my parents asked again.”
+
+You already know what this is about.
+You always do.
+
+17:12
+
+You nod. That’s your role.
+Acknowledgment without resistance.
+
+“They’re just… concerned,” she adds quickly.
+“They just want to know we’re… aligned.”
+
+Aligned.
+The word floats in the room like a corporate slide.
+
+17:14
+
+You ask the neutral question:
+
+“Aligned on what?”
+
+She exhales — relieved you asked, because now the script can proceed.
+
+“Timelines. Stability. The future.”
+
+The future is spoken like a deliverable.
+
+17:17
+
+Silence again.
+
+You think about saying the honest thing:
+
+that you’re fine
+
+that nothing feels missing
+
+that the current quiet is precious
+
+But you don’t.
+Honesty would introduce friction, and friction is impolite.
+
+17:20
+
+She continues, gentler now.
+
+“I mean… we don’t have to decide anything.
+But we should probably start… talking.”
+
+Talking here doesn’t mean exploring.
+It means narrowing.
+
+17:22
+
+You say the line that keeps the peace:
+
+“Yeah. Makes sense.”
+
+The room relaxes instantly.
+Crisis averted.
+
+17:25
+
+She smiles — not with joy, but with relief.
+
+“Okay. Good.
+We can figure it out slowly.”
+
+Slowly.
+As if gravity isn’t already doing the work.
+
+17:40
+
+Conversation drifts to logistics:
+
+costs
+
+schools
+
+neighborhoods
+
+“what people usually do”
+
+No one mentions desire.
+
+Desire is inefficient.
+
+18:10
+
+Later, alone in the bathroom, you look at your reflection.
+
+Nothing’s wrong with it.
+No panic.
+No despair.
+
+Just a faint recognition:
+
+This conversation didn’t open a path.
+It closed a few quietly.
+
+23:58
+
+In bed again.
+
+She’s asleep.
+
+You’re awake, not anxious — just aware.
+
+You realize the truth, fully formed and unsettling:
+
+The cage doesn’t slam shut.
+It closes by agreement.
+One polite nod at a time.
+
+You turn on your side.
+
+Tomorrow is Monday.
+
+Everything will continue working perfectly.
